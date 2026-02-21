@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm learning how to code
+Hi there
 
 
 ## 🌐 Socials:
