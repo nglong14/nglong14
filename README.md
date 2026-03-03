@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there
+Hi there, I'm Long, CS freshman at University of South Florida.
 
 
 ## 🌐 Socials:
